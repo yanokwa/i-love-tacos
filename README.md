@@ -1,4 +1,4 @@
-# i-love-tacos
+# i-love-tacos 🌮
 A lot
 
-lucyw is such a good presenter! <3
+lucyw is such a good presenter! ❤️
